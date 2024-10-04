@@ -7,5 +7,3 @@
 👍🏻 premium quality
 
 💡 engineered in Belgium
-
-<a href="https://www.carvepix.com">carvepix.com</a>
